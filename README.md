@@ -11,7 +11,7 @@ Before coming to UT Dallas, I was an engineering major at Texas A&M, College Sta
 🧐 Don't hesitate to reach out.
 
 Connect with me:
-[![LinkedIn](https://www.google.com/url?sa=i&url=https%3A%2F%2Fcommons.wikimedia.org%2Fwiki%2FFile%3ALinkedIn_logo_initials.png&psig=AOvVaw2DzUOe80XwytKGzv77rULJ&ust=1724803939458000&source=images&cd=vfe&opi=89978449&ved=0CBQQjRxqFwoTCJDgiMTxk4gDFQAAAAAdAAAAABAJ)](https://www.linkedin.com/in/armita-katarapu/)
+[LinkedIn](https://www.linkedin.com/in/armita-katarapu/)
 Personal Website 
 
 
